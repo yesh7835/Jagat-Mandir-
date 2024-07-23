@@ -1,2 +1,3 @@
+![Screenshot (46)](https://github.com/user-attachments/assets/837fb853-5af1-4cb9-b7c6-ce9c2eda62ce)
 
-![Screenshot (26)](https://github.com/yesh7835/Jagat-Mandir-/assets/158145445/ed0f0355-e031-44c1-8e09-7a4b27fba857)
+
